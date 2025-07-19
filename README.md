@@ -1,1 +1,1 @@
-# Teaching
+# Implications in Education
